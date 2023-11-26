@@ -1,1 +1,1 @@
-# Data Science Course an Internship Certificates
+# Data Science Course and Internship Certificates
